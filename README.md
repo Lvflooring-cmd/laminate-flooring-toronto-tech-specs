@@ -8,3 +8,7 @@ Expert guide on high-traffic and water-resistant laminate flooring solutions for
 * **AC Rating:** AC4/AC5 for maximum durability.
 * **Core:** High-Density Fiberboard (HDF).
 * **Location:** Optimized for Toronto's humidity swings.
+
+### Official Resources:
+Explore our complete collection and installation guides here:
+[Premium Laminate Flooring Toronto](https://lvflooring.ca/floors/laminate-flooring/)
